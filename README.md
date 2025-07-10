@@ -18,4 +18,4 @@ SEO策略方面，成人网站采用合理的关键词布局和丰富的元数�
 
 未来，随着5G、人工智能等技术的融合应用，成人内容平台将进一步向智能化、个性化方向发展，不断提升用户体验和运营效率，推动行业朝着规范、安全、高质的方向迈进。
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link]( https://github.com/pls20250710/riben35320 ）</span>
